@@ -1,5 +1,5 @@
 I'm seeking the best/ fastest ways to learn Music Theory- 👋 Hi, I’m @Treal99
-- 👀 I’m interested in ... Logic Pro Music Production, free AU plugins, Network with community GitHub
+- 👀 I’m interested in ...A.I., LLM, GitHub, Logic Pro Music Production, AU plugins, Network with community GitHub
 - 🌱 I’m currently learning ... Music Theory
 - 💞️ I’m looking to collaborate on ... Music Production
 - 📫 How to reach me ... MrFixstuff100@gmail.com
